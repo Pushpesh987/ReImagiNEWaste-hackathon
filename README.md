@@ -1,1 +1,0 @@
-# ReImagiNEWaste-hackathon
